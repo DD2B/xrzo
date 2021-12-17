@@ -1,14 +1,14 @@
                      
 ### ⚡ 𝘏𝘌𝘓𝘓𝘖 ⚡
 
-### 𝘈𝘉𝘖𝘜𝘛 𝘑𝘔𝘛𝘏𝘖𝘕 𝘛𝘌𝘈𝘔 🙋🏻‍♂️
+### 𝘈𝘉𝘖𝘜𝘛 JAIITHON 𝘛𝘌𝘈𝘔 🙋🏻‍♂️
 
 ```python
 𝘈𝘕 𝘈𝘙𝘈𝘉𝘐𝘊 𝘛𝘌𝘓𝘌𝘎𝘙𝘈𝘔 𝘜𝘚𝘌𝘙𝘉𝘖𝘛 𝘋𝘌𝘝𝘌𝘓𝘖𝘗𝘌𝘙
-𝘋𝘌𝘝𝘌𝘓𝘖𝘗𝘌𝘙  :  @RR9R7  -  @SBB_B
+𝘋𝘌𝘝𝘌𝘓𝘖𝘗𝘌𝘙  :  @XRZOC  -  @JAIITHON
 ```
 #### 
-[![telegram badge](https://img.shields.io/badge/CONTACT-ME-30302f?style=for-the-badge&logo=telegram)](https://t.me/JMTHON)
+[![telegram badge](https://img.shields.io/badge/CONTACT-ME-30302f?style=for-the-badge&logo=telegram)](https://t.me/JAIITHON)
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=SAMEER&label=Profile%20Views&color=orange&style=flat-square" alt="CyberBoyAyush" /> </p>
 
 - 𝘐 𝘈𝘔 𝘚𝘛𝘐𝘓𝘓 𝘓𝘌𝘈𝘙𝘕𝘐𝘕𝘎 𝘎𝘐𝘛 & 𝘎𝘐𝘛𝘏𝘜𝘉  
